@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @djramzez666
+- 👀 I’m interested in videogames and lifting weights
+- 🌱 I’m currently learning python,HTML
+- 📫 How to reach me: aifory49@gmail.com
